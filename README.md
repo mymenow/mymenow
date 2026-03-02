@@ -7,5 +7,5 @@ I believe it's impossible to communicate with people with whom we have no shared
 4. Learning foreign languages (German, Chinese, English),
 5. Art in general. I follow many artists on twitter. I also draw myself, but rarely.
 6. Reading books and learning something new about anything~
-7. 
+   
 ESTJ, she/her. whisper anything to interact
